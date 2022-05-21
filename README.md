@@ -18,7 +18,7 @@
 
 - [Gmail](https://mail.google.com/mail/u/0/?view=cm&fs=1&tf=1&source=mailto&to=code.jenishmonpara@gmail.com) 
 - [LinkedIn](https://www.linkedin.com/in/jenishmonpara/) 
-- [Instagram](https://www.instagram.com/jenishmonpara/)
+- [Instagram](https://www.instagram.com/jenish_monpara/)
 
 <br />
 
